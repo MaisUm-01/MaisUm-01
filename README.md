@@ -2,7 +2,6 @@
 - 👀 I'm interested in computer
 - 🌱 I am currently learning Information Technology (IT)
 - 💞️ I look to collaborate on projects and help develop them
-- 📫 How to reach me call on discord: ! MaisUm S2#3090
 -  ❗ I like to speak more in Portuguese because I'm still learning English
 
 
