@@ -6,7 +6,6 @@
 
 - 👯 I’m looking to collaborate on **projects such as Back-end and Front-end.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
